@@ -1,3 +1,5 @@
+# Chapter 1
+
 ## **Chapter 1**
 
 The first thing I ever stole was a chicken. Not an egg, which would have been sensible, or a loaf of bread, which would have been discreet, but a whole, live, indignant Barred Rock hen from under old Mrs. Petrovich’s porch. I was seven. The hen’s name, I later learned, was Boudicca. She was a matriarch with feathers like a stormy sky and an eye that held the ancient, judgemental wisdom of all grandmothers. I tucked her under my arm like a football, her warm body thrumming with outrage, and ran through the dew-soaked alfalfa fields behind our lane, the morning sun a pale wafer in a milky sky. I wasn’t running from Mrs. Petrovich, who was half-blind and mostly deaf. I was running towards an idea: that this creature, this living engine of warmth and future breakfasts, could be *mine*. A possession. A declaration. My small hands knew the heft of feed buckets and the sting of wire, but they had never held a deed, a title, a thing that wasn’t already promised to the work of the farm itself. The farm was a *we*. I wanted an *I*.
@@ -87,6 +89,8 @@ I think of Boudicca the chicken. A small, feathered government. I think of my mo
 I am responsible for the dirt, the asparagus, the sighing house. And for the words in the dark. The weight of custody settles on my shoulders, familiar as a yoke. Mira Thorne sees history. Alistair Cade sees a commodity. I see the ghost of my mother in the zucchini vines, and I know, with a sinking certainty, that the world has just shouldered its way into my field. The theft has begun. The repayment will be costly.
 
 ---
+
+# Chapter 2
 
 ## **Chapter 2**
 
@@ -203,6 +207,8 @@ Hester’s nervous system in the dirt. My mother’s ashes in the compost. The c
 I am the ledger now.
 
 ---
+
+# Chapter 3
 
 ## **Chapter 3**
 
